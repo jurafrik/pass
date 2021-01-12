@@ -1,2 +1,2 @@
 # pass
-Fucking pass fot each bull shit ☠️
+Fucking password fot each bull shit ☠️
